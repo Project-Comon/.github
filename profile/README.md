@@ -1,5 +1,6 @@
 ## 팀 핫식스입니다!
 
+![4a6b11cb351e6f426b87ae34b0683efa_1733294676_2886](https://github.com/user-attachments/assets/34314a42-bbc0-46dc-a720-e893ad452379)
 
 
 <!--
